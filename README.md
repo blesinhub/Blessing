@@ -1,2 +1,0 @@
-# Blessing
-About my self 
